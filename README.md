@@ -1,0 +1,1 @@
+# MY-GAM-ONLY
